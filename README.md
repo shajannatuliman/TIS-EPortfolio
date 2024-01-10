@@ -10,7 +10,7 @@ My Biodata
 ----------
 
 Name: Shajannatul Iman Binti Abdul Majid  
-Age: 20  
+Age: 19  
 Origin: Ipoh, Perak  
 Birthday: 7/6/2004
 
