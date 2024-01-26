@@ -16,6 +16,7 @@ Birthday: 7/6/2004
 
 __Summary__
 
+In summary, you can call me Iman and feel free to contact me through my email 🖥 shajannatuliman@graduate.utm.my
 
 Core
 ----
